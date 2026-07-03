@@ -1,7 +1,7 @@
 # Eswari Lekhya. J
 
 
-### Junior Research Fellow, Climate Change and Dynamics
+### Junior Research Fellow, Indian Institute of Tropical Meteorology
 
 ## About Me
 -  **Education**: MSc Atmospheric Sciences, National Institute of Technology, Rourkela
